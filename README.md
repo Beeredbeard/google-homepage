@@ -1,0 +1,1 @@
+Uhh... I guess this is a Google page clone? Odin told me to write down what the project was and "what skills you have demonstrated once you have completed it". So I guess I recalled how to do all this Github repository stuff, which is encouraging. Joe Biden just became President, so that's cool too. Guess I'll leave this the way it is for now. 
